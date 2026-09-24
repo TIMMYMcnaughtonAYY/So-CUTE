@@ -1,3 +1,6 @@
+Awwhh who added me on the Wikipedia page guyss tysm
+<img width="384" height="127" alt="Screenshot 2026-09-25 015217" src="https://github.com/user-attachments/assets/ab6ad8f6-218e-4c29-8d6f-587b66a4c49c" />
+
 <font color="008080">Cute sociohack and Kevin photos/GIFS ( ˶°ㅁ°) !! #ILOVEMYHUSBAND</font>
 <img src="https://c.tenor.com/I10g0net9IoAAAAd/tenor.gif" alt="Description" width="400">
  <img src="https://media.tenor.com/H6z3rzrinlkAAAAM/kevin-spencer-fruity.gif" alt="Description" width="400">
